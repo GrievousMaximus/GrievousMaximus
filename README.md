@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GrievousMaximus
+- 👀 I’m interested in using Discord, playing video games etc.
+- 📫 How to reach me: Discord: @GrievousMaximus#1014
